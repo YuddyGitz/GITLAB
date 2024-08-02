@@ -1,1 +1,1 @@
-The Lord is good.
+The Lord is good all the time.
